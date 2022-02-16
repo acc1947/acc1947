@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @acc1947
+- 👀 I’m a retired project manager who used to code a fair bit. 
